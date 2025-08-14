@@ -1,2 +1,0 @@
-# I-AM-SAID
-I AM SAID
